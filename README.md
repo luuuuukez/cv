@@ -1,2 +1,1 @@
-# cv
-luuuuukez
+# cv 2024
